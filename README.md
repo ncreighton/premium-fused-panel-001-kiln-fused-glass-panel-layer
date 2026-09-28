@@ -1,0 +1,2 @@
+# premium-fused-panel-001-kiln-fused-glass-panel-layer
+Stop losing your layering recipes and kiln schedules to sticky notes—turn your chaotic studio into a repeatable, profitable process with the Kiln Fused Glass Panel &amp; Layer Craft Studio.  This Notion template solves the pain of scattered project notes by centralizing every layer, firing schedule, and material list in one workspace. It eliminates gue
